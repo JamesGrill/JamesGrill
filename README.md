@@ -1,5 +1,4 @@
 ## James Grill
-I recently graduated from the University of Northern Iowa with a Bachelor's Degree in Computer Science.
 I am currently job searching for an entry level position that will allow me to continue growing my skills.
 
 ### Interested In
